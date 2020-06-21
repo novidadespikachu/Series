@@ -4,7 +4,7 @@
 
 ## sábado, 20 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Kidding (2018) - 720p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/4cRHAgqMQTtx6Ncw8cphjOR7lnS.jpg" alt="Addon Pikachu"></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/4cRHAgqMQTtx6Ncw8cphjOR7lnS.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Jeff Pickles acredita que deve falar sobre a morte em seu programa. Deirdre castiga Maddy, por ela não ter comido os vegetais.</justify></td></tr>
 <tr><td> <center>Capítulos adicionados: 2 Temporadas - 20 EPS</center></td></tr></table>
 
