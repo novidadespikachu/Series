@@ -1,10 +1,7 @@
 <!--Copias não serão toleradas-->
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
- img {
-    display: block;
-    margin: 0 auto;
-}
+
 ## sábado, 20 de junho de 2020
 <table style="width:100%"><tr><th><center><b> Kidding (2018) - 720p - Dublado </b></center></th></tr>
 <tr><td><center><div style="border: 1px solid black;"><img class="center" src="https://image.tmdb.org/t/p/w500_and_h282_face/4cRHAgqMQTtx6Ncw8cphjOR7lnS.jpg" alt="Addon Pikachu"></center></div></td></tr>
