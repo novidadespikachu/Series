@@ -9,25 +9,25 @@
 <tr><td> <center>Capítulos adicionados: 2 Temporadas - 20 EPS</center></td></tr></table>
 
 
-<h3 style="text-align: center; font-size: 35px; border: none">
+<h3 style="text-align: center; font-size: 15px; border: none">
   <a href="https://bit.ly/attfilmes" target="_blank" style="text-decoration: none;">
     🔰 Novidades em filmes 🔰
   </a>
 </h3>
 
-<h3 style="text-align: center; font-size: 35px; border: none">
+<h3 style="text-align: center; font-size: 15px; border: none">
   <a href="https://bit.ly/showsnovidades" target="_blank" style="text-decoration: none;">
     🔰 Novidades em Shows 🔰
   </a>
   </h3>
   
-<h3 style="text-align: center; font-size: 35px; border: none">
+<h3 style="text-align: center; font-size: 15px; border: none">
   <a href="https://bit.ly/downloadkachu" target="_blank" style="text-decoration: none;">
     🔰 Novidades no forno! 🔰
   </a>
 </h3>
 
-<h3 style="text-align: center; font-size: 35px; border: none">
+<h3 style="text-align: center; font-size: 20px; border: none">
     🔰 Copias não serão toleradas 🔰
 </h3>
 
