@@ -1,37 +1,34 @@
-## Welcome to GitHub Pages
+<!--Copias não serão toleradas-->
 
-You can use the [editor on GitHub](https://github.com/novidadespikachu/Series/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+ [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
+ 
+## sábado, 20 de junho de 2020
+<table style="width:100%"><tr><th><center><b> Kidding (2018) - 720p - Dublado </b></center></th></tr>
+<tr><td><img src="https://image.tmdb.org/t/p/w500_and_h282_face/4cRHAgqMQTtx6Ncw8cphjOR7lnS.jpg" alt="Addon Pikachu"></td></tr>
+<tr><td><justify>Jeff Pickles acredita que deve falar sobre a morte em seu programa. Deirdre castiga Maddy, por ela não ter comido os vegetais.</justify></td></tr>
+<tr><td><center>Capítulos adicionados: 2 Temporadas - 20 EPS</center></td></tr></table>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
+<h3 style="text-align: center; font-size: 35px; border: none">
+  <a href="https://bit.ly/attfilmes" target="_blank" style="text-decoration: none;">
+    🔰 Novidades em filmes 🔰
+  </a>
+</h3>
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+<h3 style="text-align: center; font-size: 35px; border: none">
+  <a href="https://bit.ly/showsnovidades" target="_blank" style="text-decoration: none;">
+    🔰 Novidades em Shows 🔰
+  </a>
+  </h3>
+  
+<h3 style="text-align: center; font-size: 35px; border: none">
+  <a href="https://bit.ly/downloadkachu" target="_blank" style="text-decoration: none;">
+    🔰 Novidades no forno! 🔰
+  </a>
+</h3>
 
-```markdown
-Syntax highlighted code block
+<h3 style="text-align: center; font-size: 35px; border: none">
+    🔰 Copias não serão toleradas 🔰
+</h3>
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/novidadespikachu/Series/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+<!--Copias não serão toleradas-->
