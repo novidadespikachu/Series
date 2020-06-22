@@ -10,7 +10,7 @@
 <tr><td> <center> Capítulos adicionados:3 Temporadas </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> NOS4A2 (2019) - 720p - Dublado - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/uoeE3icTZ3mpzEZmvfIDxxQpaxu.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/u8jBPto2MeE5f7lX3iSKdIuHhsi.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Vic McQueen é uma jovem talentosa que descobre possuir uma habilidade sobrenatural de encontrar coisas perdidas. Essa habilidade a coloca em conflito direto com o maligno e imortal Charlie Manx. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:2 Temporadas </center></td></tr></table>
 
