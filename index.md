@@ -4,6 +4,11 @@
 
 ## sábado, 22 de junho de 2020
 
+<table style="width:100%"><tr><th><center><b> A Ordem (2019) - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/AtcZyZizpGhofYumo1JrjuIFkXv.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Para vingar a morte da mãe, um universitário entra para uma ordem secreta e acaba no meio de uma guerra entre lobisomens e adeptos das artes das trevas.</justify></td></tr>
+<tr><td> <center>Capítulos adicionados: 2 Temporadas - 20 EPS</center></td></tr></table>
+
 <table style="width:100%"><tr><th><center><b> Coisa Mais Linda (2019) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/v257QMYz1Gu7nBV8Itfv85ItDcx.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Uma dona de casa chega ao Rio dos anos 50 para encontrar o marido e descobre que foi abandonada. Em vez de sofrer, ela decide ficar na cidade e abrir um clube de bossa nova.</justify></td></tr>
