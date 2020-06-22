@@ -4,6 +4,11 @@
 
 ## segunda, 22 de junho de 2020
 
+<table style="width:100%"><tr><th><center><b> NOS4A2 (2019) - 720p - Dublado - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/uoeE3icTZ3mpzEZmvfIDxxQpaxu.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Vic McQueen é uma jovem talentosa que descobre possuir uma habilidade sobrenatural de encontrar coisas perdidas. Essa habilidade a coloca em conflito direto com o maligno e imortal Charlie Manx. (MrPikachu)</justify></td></tr>
+<tr><td> <center> Capítulos adicionados:2 Temporadas </center></td></tr></table>
+
 <table style="width:100%"><tr><th><center><b> De Férias com o Ex Brasil (2016) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/a6IgOsE3oRAHiQzvFcjeBPIpQ4h.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Em "De Férias com o Ex Brasil", ex-namorados são obrigados a dividir as férias juntos em um lugar paradisíaco.</justify></td></tr>
