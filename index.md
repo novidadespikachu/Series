@@ -4,6 +4,11 @@
 
 ## segunda, 22 de junho de 2020
 
+<table style="width:100%"><tr><th><center><b> O Residente (2018) - 720p - Dublado - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/kLNq4wFD2ErH9eVZlMGy7Wgafv2.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  No seu primeiro dia como interno, o Dr. Devon Pravesh enfrenta uma dura realidade, já que o Dr. Hawkins, um residente do terceiro ano, lhe ensina formas pouco convencionais para tratar os pacientes (MrPikachu)</justify></td></tr>
+<tr><td> <center> Capítulos adicionados:3 Temporadas </center></td></tr></table>
+
 <table style="width:100%"><tr><th><center><b> NOS4A2 (2019) - 720p - Dublado - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/uoeE3icTZ3mpzEZmvfIDxxQpaxu.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Vic McQueen é uma jovem talentosa que descobre possuir uma habilidade sobrenatural de encontrar coisas perdidas. Essa habilidade a coloca em conflito direto com o maligno e imortal Charlie Manx. (MrPikachu)</justify></td></tr>
