@@ -2,7 +2,7 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
 
-## sábado, 22 de junho de 2020
+## sábado, 21 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> A Ordem (2019) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/AtcZyZizpGhofYumo1JrjuIFkXv.jpg" alt="Addon Pikachu"></div></td></tr>
