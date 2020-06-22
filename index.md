@@ -5,7 +5,7 @@
 ## segunda, 22 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> De Férias com o Ex Brasil (2016) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/bxJfJlrHytCk81djYT1vEZSCXRX.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/a6IgOsE3oRAHiQzvFcjeBPIpQ4h.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Em "De Férias com o Ex Brasil", ex-namorados são obrigados a dividir as férias juntos em um lugar paradisíaco.</justify></td></tr>
 <tr><td> <center>Capítulos adicionados: 6 Temporada Adicionada - 05 EPS</center></td></tr></table>
 
