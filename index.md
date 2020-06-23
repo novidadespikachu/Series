@@ -24,7 +24,7 @@
 <tr><td> <center> Capítulos adicionados:EP 03 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Como Está Tudo Estranho Hoje! - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/spc5mNkW2daK1ob7Z7jqNkSlKS2.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/b7RPQMBhVcM/maxresdefault.webp" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Enquanto Gotham se ocupa reagindo ao embaraçoso encontro de Batwoman, Alice comemora seu último ato de vingança com Mouse . Mary arrasada se concentra no julgamento de Jacob Kane, enquanto Sophie procura conselhos sobre sua vida amorosa de alguém inesperado. Enquanto enfrentam a mais nova ameaça a Gotham, Luke prioriza a proteção do segredo da Batwoman, e Kate deve decidir o que ela está disposta a fazer para honrar a identidade da Batwoman ... e a dela.
 </justify></td></tr>
 <tr><td> <center> Capítulos adicionados:EP 10 </center></td></tr></table>
