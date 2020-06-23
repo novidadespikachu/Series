@@ -12,7 +12,7 @@
 <tr><td> <center> Capítulos adicionados:EP 06 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Flecha Quebrada - 720p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/9ezst9Lade3c5VzSunocTrPSnTm.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/58CZKPavOtE/maxresdefault.webp"></div></td></tr>
 <tr><td><justify>Sinopse:  Dr. J. Allen Hynek, um astrofísico renomado, é recrutado pelo governo para liderar o Projeto Livro Azul. O objetivo desta missão, que foi patrocinada pela Força Aérea dos Estados Unidos, é investigar fenômenos misteriosos relacionados ao aparecimento de objetos voadores não identificados (OVNI) em território estadunidense entre os anos de 1947 e 1960. (MrPikachu)
 </justify></td></tr>
 <tr><td> <center> Capítulos adicionados:EP 09 </center></td></tr></table>
