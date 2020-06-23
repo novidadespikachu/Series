@@ -3,7 +3,31 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
-## segunda, 22 de junho de 2020
+ ## Terça Feira, 23 de junho de 2020
+
+<table style="width:100%"><tr><th><center><b> HARD S01EP06 - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/ce2Dzug09nk/maxresdefault.webp"></div></td></tr>
+<tr><td><justify>Sinopse:  Uma viúva recente descobre que seu falecido marido estava no negócio de produção pornô e enfrenta o desafio de salvar a empresa que herdou. (MrPikachu)
+</justify></td></tr>
+<tr><td> <center> Capítulos adicionados:EP 06 </center></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Flecha Quebrada - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/9ezst9Lade3c5VzSunocTrPSnTm.jpg"></div></td></tr>
+<tr><td><justify>Sinopse:  Dr. J. Allen Hynek, um astrofísico renomado, é recrutado pelo governo para liderar o Projeto Livro Azul. O objetivo desta missão, que foi patrocinada pela Força Aérea dos Estados Unidos, é investigar fenômenos misteriosos relacionados ao aparecimento de objetos voadores não identificados (OVNI) em território estadunidense entre os anos de 1947 e 1960. (MrPikachu)
+</justify></td></tr>
+<tr><td> <center> Capítulos adicionados:EP 09 </center></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Cosmos.Mundos.Possiveis - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/3mvFHXygb-Y/maxresdefault.webp" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  A nova temporada da série icónica com Neil deGrasse Tyson continua a mostrar as maravilhas do nosso Cosmos, incluindo de onde viemos e para onde ... (MrPikachu)
+</justify></td></tr>
+<tr><td> <center> Capítulos adicionados:EP 03 </center></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Como Está Tudo Estranho Hoje! - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/spc5mNkW2daK1ob7Z7jqNkSlKS2.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Sinopse:  Enquanto Gotham se ocupa reagindo ao embaraçoso encontro de Batwoman, Alice comemora seu último ato de vingança com Mouse . Mary arrasada se concentra no julgamento de Jacob Kane, enquanto Sophie procura conselhos sobre sua vida amorosa de alguém inesperado. Enquanto enfrentam a mais nova ameaça a Gotham, Luke prioriza a proteção do segredo da Batwoman, e Kate deve decidir o que ela está disposta a fazer para honrar a identidade da Batwoman ... e a dela.
+</justify></td></tr>
+<tr><td> <center> Capítulos adicionados:EP 10 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> O Residente (2018) - 720p - Dublado - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/w500_and_h282_face/kLNq4wFD2ErH9eVZlMGy7Wgafv2.jpg" alt="Addon Pikachu"></div></td></tr>
