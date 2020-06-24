@@ -59,9 +59,10 @@
 <tr><td><justify>Jeff Pickles acredita que deve falar sobre a morte em seu programa. Deirdre castiga Maddy, por ela não ter comido os vegetais.</justify></td></tr>
 <tr><td> <center>Capítulos adicionados: 2 Temporadas - 20 EPS</center></td></tr></table>
 
-<a href="https://bit.ly/pikachufull">
+
+<div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
-</a>
+</a></div>
 <a href="https://bit.ly/novidadedocs">
 <img src="https://tinyurl.com/y9xs5l4t" alt="pikachu">
 </a>
@@ -83,17 +84,18 @@
 <a href="https://bit.ly/novidadeshows">
 <img src="https://tinyurl.com/ybdjml82" alt="pikachu">
 </a>
+<a href="https://bit.ly/novidadeseries">
+<img src="https://tinyurl.com/y8pbauft" alt="pikachu">
+</a>
 <a href="https://bit.ly/novidadesfilmes">
 <img src="https://tinyurl.com/ydewsb4q" alt="pikachu">
-</a>
-<a href="https://bit.ly/novidadelives">
-<img src="https://tinyurl.com/y8ehpr7u" alt="pikachu">
 </a>
 <a href="https://bit.ly/novidadeTV">
 <img src="https://tinyurl.com/ydbcnj3f" alt="pikachu">
 </a>
-<a href="https://bit.ly/pikachufull">
+<div align="center"><a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y72vpx8n" alt="pikachu">
-</a>
+</a></div>
+
 
 <!--Copias não serão toleradas-->
