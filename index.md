@@ -3,7 +3,21 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
- ## Terça Feira, 23 de junho de 2020
+## Quinta Feira, 23 de junho de 2020
+
+<table style="width:100%"><tr><th><center><b> Lincoln Rhyme Episódio 06 (2020) - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/x0ys5kgsKVTuhPMntsZTOffj5MO.jpg"></div></td></tr>
+<tr><td><justify>Sinopse:  Lincoln surpreende a equipe pedindo que investiguem um assassinato em que o suspeito é amigo de sua ex-esposa, Naia. Embora todas as evidências apontem que o marido é responsável, Amelia o questiona e admite que ele também acredita que ele pode ser inocente. Através de extensa investigação e análise, a equipe chega a duas conclusões: A vítima de assassinato coincide com várias outras, indicando o trabalho de um serial killer, e todas as vítimas usaram a mesma marca de servidor doméstico, que permite que o assassino rastreie seus movimentos através de hackers. Kate e Eric investigam o nome do assassino, Garrett Harrison, um homem que é assombrado pelo assassinato de sua própria mãe por seu pai e se sente compelido a recriá-lo nos casais com quem discutem. (MrPikachu)
+</justify></td></tr>
+<tr><td> <center> Episódio adicionado:EP 06 </center></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b> Alem Da Imaginação (2019) - 1080p  Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/vZfheYRzSg2djCa56AmMeeBYJiI.jpg"></div></td></tr>
+<tr><td><justify>Sinopse:  Bem-vindo de volta a um universo repleto de eventos sobrenaturais, criaturas místicas, viagens espaciais e mundos paralelos.
+</justify></td></tr>
+<tr><td> <center> Capítulos adicionados:10 </center></td></tr></table>
+
+## Quarta Feira, 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> HARD S01EP06 - 720p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/ce2Dzug09nk/maxresdefault.webp"></div></td></tr>
