@@ -7,7 +7,7 @@
 
 
 <table style="width:100%"><tr><th><center><b>Dark (2017) - 720p - Dublado Séries Letra  D</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/iRl1rWK3s00qJOUpiDtKykDG4cK.jpg"></b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/iRl1rWK3s00qJOUpiDtKykDG4cK.jpg"></div></th></tr>
 <tr><td><justify>Sinopse:  Quatro famílias iniciam uma desesperada busca por respostas quando uma criança desaparece e um complexo mistério envolvendo três gerações começa a se revelar.(MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 3 Temporadas!!! </center></td></tr></table>
 
