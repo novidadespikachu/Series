@@ -3,7 +3,7 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
-## Segunda Feira, 23 de junho de 2020
+##  Segunda Feira, 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> Dark (2017) - 720p - Dublado Séries Letra  D  </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/iRl1rWK3s00qJOUpiDtKykDG4cK.jpg"></b></center></th></tr>
@@ -31,7 +31,7 @@
 <tr><td> <center> Episódio 11 adicionado!!! </center></td></tr>
 </table>
 
-## Quinta Feira, 23 de junho de 2020
+##  Quinta Feira, 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> Lincoln Rhyme Episódio 06 (2020) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/x0ys5kgsKVTuhPMntsZTOffj5MO.jpg"></div></td></tr>
@@ -47,7 +47,7 @@
 <tr><td> <center> Capítulos adicionados:10 </center></td></tr>
 </table>
 
-## Quarta Feira, 23 de junho de 2020
+##  Quarta Feira, 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> HARD S01EP06 - 720p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/ce2Dzug09nk/maxresdefault.webp"></div></td></tr>
