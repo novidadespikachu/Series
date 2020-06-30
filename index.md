@@ -17,12 +17,12 @@
 <tr><td> <center> Capítulos adicionados:4 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> De Férias com o Ex Brasil (2016) Séries Letra  D </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/a6IgOsE3oRAHiQzvFcjeBPIpQ4h.jpg"></b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/a6IgOsE3oRAHiQzvFcjeBPIpQ4h.jpg"></div></td></tr>
 <tr><td><justify>Sinopse:  Em "De Férias com o Ex Brasil", ex-namorados são obrigados a dividir as férias juntos em um lugar paradisíaco. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Episódio 06 adicionado!!! </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Batwoman (2019) - 720p - Dublado Séries Letra  B </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/uyvvnP1dlRBv33JAiEJ5nriAGmD.jpg"></b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/uyvvnP1dlRBv33JAiEJ5nriAGmD.jpg"></div></td></tr>
 <tr><td><justify>Sinopse:  Nos flashbacks, Beth demonstrou ter uma amizade melhorada com Mouse, embora August não a tivesse e a envolveu em seu último projeto. No presente, Kate tenta esclarecer as coisas com a segunda Beth; acreditando que tem algo a ver com as consequências da crise. Para escapar de Alice, Mouse sequestra os filhos do Comissário Forbes e do Prefeito Akins antes que ele e a Gangue do País das Maravilhas interceptem Kate antes que ela possa se tornar Batwoman. No entanto, graças ao código que Kate e Mary aprenderam, Sophie se recusa a ceder às demandas de Mouse. Na tentativa de enganar Alice, Luke e Mary disfarçam a Beth alternativa como "Alice" para ganhar tempo para Kate se libertar. Quando "Alice" não usa o código adequado, o Mouse a captura. Kate se liberta, subjuga a gangue do país das maravilhas e fere Mouse antes de resgatar os reféns. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Episódio 11 adicionado!!! </center></td></tr></table>
 
