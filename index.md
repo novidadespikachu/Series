@@ -12,14 +12,12 @@
 
 <table style="width:100%"><tr><th><center><b> Coroner (2019) - 1080p - Dublado Séries Letra  C  </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/7iyJEhCSaesEkmHfy0JLZpjxpjO.jpg"></div></td></tr>
-<tr><td><justify>Sinopse:  Uma médica legista recém-contratada investiga uma série de misteriosas mortes em Toronto. (MrPikachu)
-</justify></td></tr>
+<tr><td><justify>Sinopse:  Uma médica legista recém-contratada investiga uma série de misteriosas mortes em Toronto. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:4 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> De Férias com o Ex Brasil (2016) Séries Letra  D  </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/a6IgOsE3oRAHiQzvFcjeBPIpQ4h.jpg"></b></center></th></tr>
-<tr><td><justify>Sinopse:  Em "De Férias com o Ex Brasil", ex-namorados são obrigados a dividir as férias juntos em um lugar paradisíaco. (MrPikachu)
-</justify></td></tr>
+<tr><td><justify>Sinopse:  Em "De Férias com o Ex Brasil", ex-namorados são obrigados a dividir as férias juntos em um lugar paradisíaco. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Episódio 06 adicionado!!! </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Batwoman (2019) - 720p - Dublado Séries Letra  B  </b></center></th></tr>
@@ -31,40 +29,34 @@
 
 <table style="width:100%"><tr><th><center><b> Lincoln Rhyme Episódio 06 (2020) - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/x0ys5kgsKVTuhPMntsZTOffj5MO.jpg"></div></td></tr>
-<tr><td><justify>Sinopse:  Lincoln surpreende a equipe pedindo que investiguem um assassinato em que o suspeito é amigo de sua ex-esposa, Naia. Embora todas as evidências apontem que o marido é responsável, Amelia o questiona e admite que ele também acredita que ele pode ser inocente. Através de extensa investigação e análise, a equipe chega a duas conclusões: A vítima de assassinato coincide com várias outras, indicando o trabalho de um serial killer, e todas as vítimas usaram a mesma marca de servidor doméstico, que permite que o assassino rastreie seus movimentos através de hackers. Kate e Eric investigam o nome do assassino, Garrett Harrison, um homem que é assombrado pelo assassinato de sua própria mãe por seu pai e se sente compelido a recriá-lo nos casais com quem discutem. (MrPikachu)
-</justify></td></tr>
+<tr><td><justify>Sinopse:  Lincoln surpreende a equipe pedindo que investiguem um assassinato em que o suspeito é amigo de sua ex-esposa, Naia. Embora todas as evidências apontem que o marido é responsável, Amelia o questiona e admite que ele também acredita que ele pode ser inocente. Através de extensa investigação e análise, a equipe chega a duas conclusões: A vítima de assassinato coincide com várias outras, indicando o trabalho de um serial killer, e todas as vítimas usaram a mesma marca de servidor doméstico, que permite que o assassino rastreie seus movimentos através de hackers. Kate e Eric investigam o nome do assassino, Garrett Harrison, um homem que é assombrado pelo assassinato de sua própria mãe por seu pai e se sente compelido a recriá-lo nos casais com quem discutem. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Episódio adicionado:EP 06 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Alem Da Imaginação (2019) - 1080p  Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/vZfheYRzSg2djCa56AmMeeBYJiI.jpg"></div></td></tr>
-<tr><td><justify>Sinopse:  Bem-vindo de volta a um universo repleto de eventos sobrenaturais, criaturas místicas, viagens espaciais e mundos paralelos.
-</justify></td></tr>
+<tr><td><justify>Sinopse:  Bem-vindo de volta a um universo repleto de eventos sobrenaturais, criaturas místicas, viagens espaciais e mundos paralelos.</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:10 </center></td></tr></table>
 
 ##  Quarta Feira , 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> HARD S01EP06 - 720p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/ce2Dzug09nk/maxresdefault.webp"></div></td></tr>
-<tr><td><justify>Sinopse:  Uma viúva recente descobre que seu falecido marido estava no negócio de produção pornô e enfrenta o desafio de salvar a empresa que herdou. (MrPikachu)
-</justify></td></tr>
+<tr><td><justify>Sinopse:  Uma viúva recente descobre que seu falecido marido estava no negócio de produção pornô e enfrenta o desafio de salvar a empresa que herdou. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:EP 06 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Flecha Quebrada - 720p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/58CZKPavOtE/maxresdefault.webp"></div></td></tr>
-<tr><td><justify>Sinopse:  Dr. J. Allen Hynek, um astrofísico renomado, é recrutado pelo governo para liderar o Projeto Livro Azul. O objetivo desta missão, que foi patrocinada pela Força Aérea dos Estados Unidos, é investigar fenômenos misteriosos relacionados ao aparecimento de objetos voadores não identificados (OVNI) em território estadunidense entre os anos de 1947 e 1960. (MrPikachu)
-</justify></td></tr>
+<tr><td><justify>Sinopse:  Dr. J. Allen Hynek, um astrofísico renomado, é recrutado pelo governo para liderar o Projeto Livro Azul. O objetivo desta missão, que foi patrocinada pela Força Aérea dos Estados Unidos, é investigar fenômenos misteriosos relacionados ao aparecimento de objetos voadores não identificados (OVNI) em território estadunidense entre os anos de 1947 e 1960. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:EP 09 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Cosmos.Mundos.Possiveis - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/3mvFHXygb-Y/maxresdefault.webp" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  A nova temporada da série icónica com Neil deGrasse Tyson continua a mostrar as maravilhas do nosso Cosmos, incluindo de onde viemos e para onde ... (MrPikachu)
-</justify></td></tr>
+<tr><td><justify>Sinopse:  A nova temporada da série icónica com Neil deGrasse Tyson continua a mostrar as maravilhas do nosso Cosmos, incluindo de onde viemos e para onde ... (MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:EP 03 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Como Está Tudo Estranho Hoje! - 1080p - Dublado </b></center></th></tr>
 <tr><td><div align="center"><img src="https://i.ytimg.com/vi_webp/b7RPQMBhVcM/maxresdefault.webp" alt="Addon Pikachu"></div></td></tr>
-<tr><td><justify>Sinopse:  Enquanto Gotham se ocupa reagindo ao embaraçoso encontro de Batwoman, Alice comemora seu último ato de vingança com Mouse . Mary arrasada se concentra no julgamento de Jacob Kane, enquanto Sophie procura conselhos sobre sua vida amorosa de alguém inesperado. Enquanto enfrentam a mais nova ameaça a Gotham, Luke prioriza a proteção do segredo da Batwoman, e Kate deve decidir o que ela está disposta a fazer para honrar a identidade da Batwoman ... e a dela.
-</justify></td></tr>
+<tr><td><justify>Sinopse:  Enquanto Gotham se ocupa reagindo ao embaraçoso encontro de Batwoman, Alice comemora seu último ato de vingança com Mouse . Mary arrasada se concentra no julgamento de Jacob Kane, enquanto Sophie procura conselhos sobre sua vida amorosa de alguém inesperado. Enquanto enfrentam a mais nova ameaça a Gotham, Luke prioriza a proteção do segredo da Batwoman, e Kate deve decidir o que ela está disposta a fazer para honrar a identidade da Batwoman ... e a dela.</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:EP 10 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> O Residente (2018) - 720p - Dublado - Dublado </b></center></th></tr>
