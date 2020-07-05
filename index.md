@@ -3,6 +3,18 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
+##  Domingo , 05 de julho de 2020
+
+<table style="width:100%"><tr><th><center><b>No menu de Séries letra [ B ] Baghdad Central (2019) Dublado 720p</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/fKKD2nHMEnZH0mw7CwarLaCnfaO.jpg"></div></td></tr>
+<tr><td><justifySinopse: Traduzido do inglês-Bagdá Central é uma série de televisão britânica de suspense policial ambientada no Iraque e transmitida pela primeira vez em 2020. Foi adaptada de um romance de 2014 de Elliott Colla.(MrPikachu)</justify></td></tr>
+<tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>No menu de Séries letra [ D ] Deadwind (2018) Dublado 720p</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/rMtKDOOzaeuyUfVsJ4aX2XdSHrS.jpg"></div></td></tr>
+<tr><td><justify>Sinopse: Abalada por uma tragédia pessoal, a investigadora de polícia Sofia Karppi investiga o assassinado de uma mulher ligada a uma empreiteira de Helsinque.(MrPikachu)</justify></td></tr>
+<tr><td> <center> Capítulos adicionados: 12</center></td></tr></table>
+
 ##  Segunda Feira , 23 de junho de 2020
 
 
