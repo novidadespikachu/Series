@@ -4,6 +4,14 @@
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
 ##	 terça-feira, 7 de julho de 2020
+
+terça-feira, 7 de julho de 2020
+<table style="width:100%"><tr><th><center><b>Hanna (2019) - 1ª Temporada</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/oUuyMvdBIZiJHEGtKYrIZO7hyd7.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align=justify>Hanna é uma adolescente que mora na zona rural do norte da Finlândia ao lado do pai, e que vê sua vida mudar ao conhecer um ex-agente da CIA que planeja um plano para matar todos os agentes que desejam capturá-los. Hanna, então, passa por um pesado treinamento e não demora a se tornar uma hábil asssassina. Agora, ela embarca em uma missão contra a CIA que pode custar sua própria vida.</justify></td></tr>
+<tr><td> <center> Capítulos adicionados: 02 Temporadas</center></td></tr></table>
+
+
 <table style="width:100%"><tr><th><center><b>O Grito - Origens - 1ª Temporada</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
  <tr><td align=justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
