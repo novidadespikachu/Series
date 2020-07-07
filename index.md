@@ -7,7 +7,12 @@
 
 <table style="width:100%"><tr><th><center><b>O Grito - Origens - 1ª Temporada</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
+<tr><td align=<justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
+<tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
+
+<table style="width:100%"><tr><th><center><b>O Grito - Origens - 1ª Temporada</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td align=<justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
 
 
@@ -15,7 +20,7 @@
 
 <table style="width:100%"><tr><th><center><b>No menu de Séries letra [ B ] Baghdad Central (2019) Dublado 720p</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/fKKD2nHMEnZH0mw7CwarLaCnfaO.jpg"></div></td></tr>
-<tr><td><justifySinopse: Traduzido do inglês-Bagdá Central é uma série de televisão britânica de suspense policial ambientada no Iraque e transmitida pela primeira vez em 2020. Foi adaptada de um romance de 2014 de Elliott Colla.(MrPikachu)</justify></td></tr>
+<tr><td><justify>Sinopse: Traduzido do inglês-Bagdá Central é uma série de televisão britânica de suspense policial ambientada no Iraque e transmitida pela primeira vez em 2020. Foi adaptada de um romance de 2014 de Elliott Colla.(MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>No menu de Séries letra [ D ] Deadwind (2018) Dublado 720p</b></center></th></tr>
