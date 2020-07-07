@@ -6,24 +6,24 @@
 ## Terça Feira , 07 de julho de 2020
 
 <table style="width:100%"><tr><th><center><b>No menu de Séries letra [ O ] O Grito: Origens (2020) Dublado 1080p</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Um pesquisador de fenômenos sobrenaturais investiga uma casa amaldiçoada, onde algo terrível aconteceu com uma mãe um filho há muitos anos.(MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: O6</center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>No menu de Séries letra [ H ] Hanna (2019) Dublado 720p</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/oUuyMvdBIZiJHEGtKYrIZO7hyd7.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/oUuyMvdBIZiJHEGtKYrIZO7hyd7.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Hanna é uma adolescente que mora na zona rural do norte da Finlândia ao lado do pai, e que vê sua vida mudar ao conhecer um ex-agente da CIA que planeja um plano para matar todos os agentes que desejam capturá-los. Hanna, então, passa por um pesado treinamento e não demora a se tornar uma hábil asssassina. Agora, ela embarca em uma missão contra a CIA que pode custar sua própria vida.(MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 02 Temporadas</center></td></tr></table>
 
 ##  Domingo , 05 de julho de 2020
 
 <table style="width:100%"><tr><th><center><b>No menu de Séries letra [ B ] Baghdad Central (2019) Dublado 720p</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/fKKD2nHMEnZH0mw7CwarLaCnfaO.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/fKKD2nHMEnZH0mw7CwarLaCnfaO.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse: Traduzido do inglês-Bagdá Central é uma série de televisão britânica de suspense policial ambientada no Iraque e transmitida pela primeira vez em 2020. Foi adaptada de um romance de 2014 de Elliott Colla.(MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b>No menu de Séries letra [ D ] Deadwind (2018) Dublado 720p</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/rMtKDOOzaeuyUfVsJ4aX2XdSHrS.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/rMtKDOOzaeuyUfVsJ4aX2XdSHrS.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse: Abalada por uma tragédia pessoal, a investigadora de polícia Sofia Karppi investiga o assassinado de uma mulher ligada a uma empreiteira de Helsinque.(MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 12</center></td></tr></table>
 
@@ -31,34 +31,34 @@
 
 
 <table style="width:100%"><tr><th><center><b>Dark (2017) - 720p - Dublado Séries Letra  D</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/iRl1rWK3s00qJOUpiDtKykDG4cK.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/iRl1rWK3s00qJOUpiDtKykDG4cK.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Quatro famílias iniciam uma desesperada busca por respostas quando uma criança desaparece e um complexo mistério envolvendo três gerações começa a se revelar.(MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 3 Temporadas!!! </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Coroner (2019) - 1080p - Dublado Séries Letra  C </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/7iyJEhCSaesEkmHfy0JLZpjxpjO.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/7iyJEhCSaesEkmHfy0JLZpjxpjO.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Uma médica legista recém-contratada investiga uma série de misteriosas mortes em Toronto. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:4 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> De Férias com o Ex Brasil (2016) Séries Letra  D </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/a6IgOsE3oRAHiQzvFcjeBPIpQ4h.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/a6IgOsE3oRAHiQzvFcjeBPIpQ4h.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Em "De Férias com o Ex Brasil", ex-namorados são obrigados a dividir as férias juntos em um lugar paradisíaco. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Episódio 06 adicionado!!! </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Batwoman (2019) - 720p - Dublado Séries Letra  B </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/uyvvnP1dlRBv33JAiEJ5nriAGmD.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/uyvvnP1dlRBv33JAiEJ5nriAGmD.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Nos flashbacks, Beth demonstrou ter uma amizade melhorada com Mouse, embora August não a tivesse e a envolveu em seu último projeto. No presente, Kate tenta esclarecer as coisas com a segunda Beth; acreditando que tem algo a ver com as consequências da crise. Para escapar de Alice, Mouse sequestra os filhos do Comissário Forbes e do Prefeito Akins antes que ele e a Gangue do País das Maravilhas interceptem Kate antes que ela possa se tornar Batwoman. No entanto, graças ao código que Kate e Mary aprenderam, Sophie se recusa a ceder às demandas de Mouse. Na tentativa de enganar Alice, Luke e Mary disfarçam a Beth alternativa como "Alice" para ganhar tempo para Kate se libertar. Quando "Alice" não usa o código adequado, o Mouse a captura. Kate se liberta, subjuga a gangue do país das maravilhas e fere Mouse antes de resgatar os reféns. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Episódio 11 adicionado!!! </center></td></tr></table>
 
 ##  Quinta Feira , 23 de junho de 2020
 
 <table style="width:100%"><tr><th><center><b> Lincoln Rhyme Episódio 06 (2020) - 1080p - Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/x0ys5kgsKVTuhPMntsZTOffj5MO.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/x0ys5kgsKVTuhPMntsZTOffj5MO.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Lincoln surpreende a equipe pedindo que investiguem um assassinato em que o suspeito é amigo de sua ex-esposa, Naia. Embora todas as evidências apontem que o marido é responsável, Amelia o questiona e admite que ele também acredita que ele pode ser inocente. Através de extensa investigação e análise, a equipe chega a duas conclusões: A vítima de assassinato coincide com várias outras, indicando o trabalho de um serial killer, e todas as vítimas usaram a mesma marca de servidor doméstico, que permite que o assassino rastreie seus movimentos através de hackers. Kate e Eric investigam o nome do assassino, Garrett Harrison, um homem que é assombrado pelo assassinato de sua própria mãe por seu pai e se sente compelido a recriá-lo nos casais com quem discutem. (MrPikachu)</justify></td></tr>
 <tr><td> <center> Episódio adicionado:EP 06 </center></td></tr></table>
 
 <table style="width:100%"><tr><th><center><b> Alem Da Imaginação (2019) - 1080p  Dublado </b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/vZfheYRzSg2djCa56AmMeeBYJiI.jpg"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/vZfheYRzSg2djCa56AmMeeBYJiI.jpg" alt="Addon Pikachu"></div></td></tr>
 <tr><td><justify>Sinopse:  Bem-vindo de volta a um universo repleto de eventos sobrenaturais, criaturas místicas, viagens espaciais e mundos paralelos.</justify></td></tr>
 <tr><td> <center> Capítulos adicionados:10 </center></td></tr></table>
 
