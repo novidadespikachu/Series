@@ -3,15 +3,10 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
-##	 terça-feira, 7 de julho de 2020
+## Terça Feira , 07 de julho de 2020
 
 <table style="width:100%"><tr><th><center><b>O Grito - Origens - 1ª Temporada</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
-<tr><td align=<justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
-<tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
-
-<table style="width:100%"><tr><th><center><b>O Grito - Origens - 1ª Temporada</b></center></th></tr>
-<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg"</div></td></tr>
 <tr><td align=<justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
 <tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
 
