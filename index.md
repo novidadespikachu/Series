@@ -4,10 +4,10 @@
  <div align="center"><img src="https://tinyurl.com/ydahh4kf" alt="Addon Pikachu"> <img src="https://tinyurl.com/y86yjky9" alt="Addon Pikachu"></div>
 
 ##	 terça-feira, 7 de julho de 2020
- 	<table style="width:100%"><tr><th><center><b>O Grito - Origens - 1ª Temporada</b></center></th></tr>
-	<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
- 	<tr><td align=justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
-  <tr><td> <center> Capítulos adicionados: 06</center></td></tr></table></table>
+<table style="width:100%"><tr><th><center><b>O Grito - Origens - 1ª Temporada</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg" alt="Addon Pikachu"></div></td></tr>
+ <tr><td align=justify>Um pesquisador paranormal busca obsessivamente uma casa amaldiçoada onde algo terrível aconteceu com uma mulher e seu filho há muito tempo.</justify></td></tr>
+ <tr><td> <center> Capítulos adicionados: 06</center></td></tr></table>
 
 
 ##  Domingo , 05 de julho de 2020
