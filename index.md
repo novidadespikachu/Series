@@ -5,6 +5,11 @@
 
 ## Terça Feira , 07 de julho de 2020
 
+<table style="width:100%"><tr><th><center><b>No menu de Séries letra [ O ] O Grito: Origens (2020) Dublado 1080p</b></center></th></tr>
+<tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/jfF7ZuJbWXB5NVDEfKj1TqvnrIE.jpg"></div></td></tr>
+<tr><td><justify>Um pesquisador de fenômenos sobrenaturais investiga uma casa amaldiçoada, onde algo terrível aconteceu com uma mãe um filho há muitos anos.(MrPikachu)</justify></td></tr>
+<tr><td> <center> Capítulos adicionados: O6</center></td></tr></table>
+
 <table style="width:100%"><tr><th><center><b>No menu de Séries letra [ H ] Hanna (2019) Dublado 720p</b></center></th></tr>
 <tr><td><div align="center"><img src="https://image.tmdb.org/t/p/original/oUuyMvdBIZiJHEGtKYrIZO7hyd7.jpg"></div></td></tr>
 <tr><td><justify>Hanna é uma adolescente que mora na zona rural do norte da Finlândia ao lado do pai, e que vê sua vida mudar ao conhecer um ex-agente da CIA que planeja um plano para matar todos os agentes que desejam capturá-los. Hanna, então, passa por um pesado treinamento e não demora a se tornar uma hábil asssassina. Agora, ela embarca em uma missão contra a CIA que pode custar sua própria vida.(MrPikachu)</justify></td></tr>
